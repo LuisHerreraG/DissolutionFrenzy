@@ -1,4 +1,4 @@
-# DissolutionFrenzy
+# Dissolution Frenzy
 
 WATCH TRAILER AND GAMEPLAY HERE (SPANISH): [Dissolution Frenzy Trailer](https://www.youtube.com/watch?v=rRTyswtCG4Y)
 
